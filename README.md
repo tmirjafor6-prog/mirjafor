@@ -1,4 +1,4 @@
-#─⃞⤹𝐉𝐔𝐖𝐄𝐋𝐂𝐇𝐀𝐓 𝐁𝐎𝐓⤸⃞🩷ꤪꜛ國🪽
+# ─⃞𝐉𝐔𝐖𝐄𝐋 𝐂𝐇𝐀𝐓 𝐁𝐎𝐓🪽
 ### ⚡ Ultra Premium Messenger Automation System
 
 ---
